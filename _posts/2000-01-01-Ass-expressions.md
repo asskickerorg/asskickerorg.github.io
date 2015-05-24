@@ -46,7 +46,7 @@ __Asswipe__: Useless person. "Bob is such an asswipe; he can't even tie his shoe
 
 __Badass__: A bad motherfucker, someone who is to be feared and/or respected. "That guy's a badass, don't mess with him." "She's a badass mountain biker."
 
-__Bare ass__: Naked.  (Thanks to Laura B. for this one).
+__Bare ass__: Synonym for "naked".  (Thanks to Laura B. for this one).
 
 __Be an ass__: To be an unpleasant person.
 
